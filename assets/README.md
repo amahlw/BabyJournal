@@ -1,0 +1,1 @@
+ Here is Web journal for my daughter , where she can go back and look at her up bringing.  Family can see recent trips and even like and comment on her pics. 
